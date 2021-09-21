@@ -1,4 +1,6 @@
-Yeah Yeah Yeah Grosse Modif
+
+Yeah cette mofi est beaucoup mieux que la première
+
 Antes dabas luz a mi vida, como una lámpara (Luz)
 Hoy yo te saque pa'l carajo, ya nadie te ampara (Bye)
 Conmigo tú lucías bien, te veías muy cara (Linda)
